@@ -1,3 +1,3 @@
 # Owethu-Varsity
-My first website 
-I love ✈️ and 🎭
+My first website I love ✈️ and 🎭
+
